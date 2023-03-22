@@ -1,40 +1,11 @@
-# Pink Floyd - The Wall
-## Claudio Satriano
-### From [https://en.wikipedia.org/wiki/The_Wall](https://en.wikipedia.org/wiki/The_Wall)
+BBC Review
 
-The Wall is the eleventh studio album by English rock band Pink Floyd, released
-in 1979 through Harvest and Columbia Records. Conceived during the In The Flesh
-tour, recording spanned nearly a year, from December 1978 to November 1979, and
-took place in France, England, New York, and Los Angeles. It was produced by Bob
-Erzin, who helped to refine the concept and bridge tensions during recording.
-Some of the outtakes from the recording sessions were used on the band's next
-album, The Final Cut (1983).
+Quite simply one of the greatest debut albums of the 1990s.
 
-![cover](https://upload.wikimedia.org/wikipedia/en/1/13/PinkFloydWallCoverOriginalNoText.jpg)
+Mike Diver 2010
 
-A rock opera and a concept record, its story explores Pink, a jaded rockstar
-that bassist Roger Waters modeled after himself and band founder Syd Barrett.
-Pink's life begins with the loss of his father during the Second World War and
-continues with abuse from his schoolteachers, an overprotective mother, and the
-breakdown of his marriage; all contribute to his eventual self-imposed isolation
-from society, symbolised by a wall. The band, who were then struggling with
-personal and financial difficulties, supported the idea. The Wall is the last
-album to feature Pink Floyd as a quartet; keyboardist Richard Wright was fired
-by Waters during production, but stayed on as a salaried musician. The record
-was promoted with three singles: "Another Brick in the Wall, Part 2", "Run Like
-Hell", and "Comfortably Numb", the first of which became the band's only number
-one single in the US. From 1980 to 1981, the group embarked on The Wall Tour,
-which was notable for its elaborate theatrical effects. The concept was later
-adapted into a feature film of the same name, directed by Alan Parker and
-released in 1982.
-
-The Wall received mixed reviews from critics upon its release, many of whom
-found its contents to be overblown and pretentious. Retrospectively, it is
-considered one of the greatest albums of all time, and is one of the most
-well-known concept albums. The record was a commercial success, reaching number
-one in the US (where it stayed for 15 weeks), and number three in the UK. As of
-2018, the album has sold over 24 million copies, the second best-selling in the
-band's catalog, as well as one of the best-selling of all time.
-
-> I think things like 'Comfortably Numb' were the last embers of mine and
-> Roger's ability to work collaboratively together. David Gilmour
+Portishead’s Mercury Prize-winning debut takes just seconds to spook its audience. An eerie drone, scratches that sound like alien chatter, a snapping beat that cracks with hip hop attitude but treads cautiously for fear of stepping on a crack and tumbling into whatever unholy chasm music like this is capable of opening. Mysterons’ title is apt – named after the Martian race from Captain Scarlett, it’s an emission from a faraway planet of secrets and shadows. It opens the group’s singular soundworld in a way that’s exquisitely discomforting.
+True, the constituents that make up much of this collection are easily traced – back to dub, to soul, and especially to hip hop; the array of scratch effects, loops and samples (the best being the slurry use of Johnnie Ray’s version of I’ll Never Fall in Love Again, on Biscuit) betraying its makers’ affections for very terrestrial traits. But it’s the manner in which the pieces come together that makes Dummy special to this day. While 16 years old, it sounds remarkably fresh – perhaps because its minimalist design has been recently returned to the Mercury winners circle by The xx; perhaps because the mixture of this backdrop with the vocals of Beth Gibbons remains one of pop music’s most compelling combinations.
+While producer Geoff Barrow is the heart of Dummy, and Adrian Utley another just-as-vital organ, the soul is Gibbons. It’s her presence that made Portishead truly stand out from the post-Blue Lines crowd, a group of artists loosely categorised as trip hop. It’s important not to exaggerate her role in taking the group from their West Country roots to worldwide acclaim, to the detriment of her bandmates, but her voice – a ghostly, fractured wail that sounds as if it’s crept from an Edwardian closet that’s been sealed since 1902 – plays a vital part in ensuring this set side-steps convention. Hers is a voice that can’t be copied, coming from the back of her mouth, shaped by throat rather than tongue and lips; it creaks and moans like Mary Celeste decking, every bit as shivers-down-the-spine inducing as Barrow’s off-kilter turntable work and unsettling electronics.
+And it’s not Gibbons’ words that do the damage – it’s how they’re said. Roads – the sort of contemporary masterpiece that in a parallel universe is being wheeled out on The X Factor and reducing Simon Cowell to floods of tears – is the best example of how Gibbons’ technique surpasses any lyrical content. The tone is familiar, an unspecified collapse, potential or assured but surely emotional, is spoken of; but the way she signs off a repeated line with a certain pronunciation of "wrong" is utterly arresting. It’s a shapeless sigh of beaten-down anguish, and there’s more heartache and pain in this single second than a whole rack of by-the-book balladeers.
+Imitators have come and gone, but no act has reproduced the disquieting magnificence conjured here except Portishead themselves. The band’s next album, an eponymous effort of 1997, distanced them from the coffee tables that (wholly unexpectedly) had made room for Dummy; to some it’s a superior listen, though a lot colder and harder than its predecessor. And their overdue comeback of 2008, Third, embraced krautrock motifs to take an established sound into a new dimension. But to many, Dummy is the group’s defining work – and even if you disagree with that, what can’t be doubted is that this is one of the greatest debuts of the 1990s.
