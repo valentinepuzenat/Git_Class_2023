@@ -2,7 +2,7 @@
 
 ## **Quite simply one of the greatest debut albums of the 1990s.**
 
-![Album Cover](https://en.wikipedia.org/wiki/Dummy_(album)#/media/File:Portishead_-_Dummy.png)
+![Album Cover](https://upload.wikimedia.org/wikipedia/en/6/6b/Portishead_-_Dummy.png)
 
 Portishead’s Mercury Prize-winning debut takes just seconds to spook its audience. An eerie drone, scratches that sound like alien chatter, a snapping beat that cracks with hip hop attitude but treads cautiously for fear of stepping on a crack and tumbling into whatever unholy chasm music like this is capable of opening. Mysterons’ title is apt – named after the Martian race from Captain Scarlett, it’s an emission from a faraway planet of secrets and shadows. It opens the group’s singular soundworld in a way that’s exquisitely discomforting.
 True, the constituents that make up much of this collection are easily traced – back to dub, to soul, and especially to hip hop; the array of scratch effects, loops and samples (the best being the slurry use of Johnnie Ray’s version of I’ll Never Fall in Love Again, on Biscuit) betraying its makers’ affections for very terrestrial traits. But it’s the manner in which the pieces come together that makes Dummy special to this day. While 16 years old, it sounds remarkably fresh – perhaps because its minimalist design has been recently returned to the Mercury winners circle by The xx; perhaps because the mixture of this backdrop with the vocals of Beth Gibbons remains one of pop music’s most compelling combinations.
